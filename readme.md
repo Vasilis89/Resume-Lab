@@ -1,0 +1,1 @@
+I made a resume. This is not a real one. Do not take it seriously if you are reading this. Waffles are not better than pancakes. Ron if you are reading this i lied waffles are better than pancakes.
